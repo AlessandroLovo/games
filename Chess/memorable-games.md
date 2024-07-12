@@ -2,6 +2,7 @@
 
 ## July 2024
 
+[12/7](https://lichess.org/zlSYAHzK/black)
 [10/7](https://lichess.org/a7pciuhQ/white)
 [9/7](https://lichess.org/wDPyusLu/white)
 [6/7b](https://lichess.org/Ga2fnE5T/white#49)

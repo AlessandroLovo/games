@@ -6,5 +6,7 @@ Blob Opera recordings
 
 ## experiments
 
-[-](https://g.co/arts/5zTUD9Nmx3E6e1Kf7)
+[senza semi](https://g.co/arts/5zTUD9Nmx3E6e1Kf7)
+Unexpected very good tenor voice and volume modulations
+
 [me me me fraaa](https://g.co/arts/nbf1fe9KwxZrQ12k8)

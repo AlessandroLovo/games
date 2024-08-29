@@ -2,7 +2,7 @@ Blob Opera recordings
 
 ## A good one
 
-[-](https://artsandculture.google.com/experiment/blob-opera/AAHWrq360NcGbw?cp=eyJyIjoieDc4cGxCRnN4WDI3In0.)
+[here](https://artsandculture.google.com/experiment/blob-opera/AAHWrq360NcGbw?cp=eyJyIjoieDc4cGxCRnN4WDI3In0.)
 
 ## experiments
 

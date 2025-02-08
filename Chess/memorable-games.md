@@ -17,3 +17,7 @@
 ## January 2025
 
 [17/01](https://lichess.org/g8N4RZx9/black#22)
+
+## February 2025
+
+[08/02](https://lichess.org/aB3jLi9F#42)

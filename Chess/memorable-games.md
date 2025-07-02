@@ -29,3 +29,7 @@
 ## May 2025
 
 [03/05](https://lichess.org/SjIofnv9/black#40)
+
+## July 2025
+
+[02/07](https://lichess.org/v8FJRZ50/white)

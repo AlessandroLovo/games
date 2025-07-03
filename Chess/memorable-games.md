@@ -32,4 +32,5 @@
 
 ## July 2025
 
+[03/07](https://lichess.org/0AR9OYzd/black#49)
 [02/07](https://lichess.org/v8FJRZ50/white)
